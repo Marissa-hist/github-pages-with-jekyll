@@ -1,3 +1,7 @@
+---
+title: "Nose in a Book"
+date: 2021-01-29
+---
 # **Marissa's Books of the Year (2019 edition)**
 
 It’s that time of the year again! If you’re a bibliophile like me, then December is the time of year when all the best of the best book lists come out, summing up the year’s new, noteworthy, and excellent reads within and across literary genres. In honor of this, I thought I’d share my own personal “best of 2019” reads, with a brief blurb about why the book means so much to me.
